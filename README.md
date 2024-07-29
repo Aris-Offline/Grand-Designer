@@ -8,4 +8,4 @@ Shompinice often asks for help of his organization's projects from group to grou
 
 and such more.
 
-Because of words he shared are very fun, members of a QQ Group collect and adapt the messages he has sent, and format this repository in final.
+Because of words he shared are very fun, members of a QQ Group collect and adapt the messages he has sent, and format this repository in final. Copy or share these words if you like.
